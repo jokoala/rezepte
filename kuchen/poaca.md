@@ -2,6 +2,8 @@
 
 Quelle: http://www.chefkoch.de/rezepte/709461173539802/Poaca.html
 
+![Foto](img/poaca.jpg)
+
 ## Zutaten
 
 für ca. 20 Stück:
