@@ -4,12 +4,14 @@ Quelle: http://www.chefkoch.de/rezepte/709461173539802/Poaca.html
 
 ## Zutaten
 
+für ca. 20 Stück:
+
 * 200g Joghurt
 * 150g Öl
 * 2 Eiweiß
 * 1 Pck. Backpulver
 * 350g Mehl
-* Schafskäse
+* 150g Schafskäse (Abtropfgewicht)
 * Oliven
 * Eigelb zum Bestreichen
 * Schwarzkümmel
