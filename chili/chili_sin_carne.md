@@ -4,7 +4,7 @@ Quelle: https://www.chefkoch.de/rezepte/261031101856294/Chili-sin-Carne.html
 
 ## Zutaten (6 Portionen)
 
-* 250ml Tomatensaft
+* 500ml Tomatensaft
 * 300g Kichererbsen
 * 4 Zwiebeln
 * 4 Zehen Knoblauch
